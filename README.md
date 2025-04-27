@@ -10,7 +10,7 @@ I will start now. e e
 gee
 not yet startedeee
 e
-Sigh.
+Sigh..
 
 geez
 March 19, 2025 - Its nanay's birthday! happy 65th birthday nanay I love you. wishing you good health!. its 3:30 am here, may duty pako 6 am karon. I hope indi ko mag overtime. hay buhay. . .
