@@ -7,7 +7,7 @@ fun and exciting
 asdsada
 
 I will start now. e e
-gee
+gee.
 not yet startedeee
 e
 Sigh..
